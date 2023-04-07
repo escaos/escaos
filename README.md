@@ -1,5 +1,4 @@
 # Edison Sanchez
-======
 
 #### IT Professional, 18+ years in Software/Hardware Programming and Technology Solutions Architecture.
 ###### [ [LinkedIn](https://www.linkedin.com/in/sanchezedison/) ] . [ sanchez.edison@gmail.com ]
